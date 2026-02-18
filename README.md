@@ -1,4 +1,4 @@
-# Fujii Kaze – 調子のっちゃって
+# Fujii Kaze – 調子のっちゃって - Cho Si Noccha Te
 
 > **歌詞登録ステータス：同期歌詞あり**
 
